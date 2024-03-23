@@ -2,7 +2,7 @@
 - 👀 I’m a ui ux desinger for 2 years...
 - 🌱 I’m currently learning web development
 - 💞️ I’m looking to collaborate on any group or freenlencer job
-- 📫 How to reach me preciousonu!!@gmail.com
+- 📫 How to reach me preciousonu@gmail.com
 - ⚡ Fun fact: i love learning new things
 
 <!---
